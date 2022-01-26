@@ -1,4 +1,4 @@
-### Greetings fellow human 👋
+### Greetings, fellow human 👋
 
 
 I am a student from School 42, looking for an internship in security and/or embedded systems.
