@@ -12,4 +12,4 @@ Les stqrters de poke;on sont.
 	6 sqlq;eche
 	6 cqrqpuce
 ``` 
-───==≡≡ΣΣ((( つºل͜º)つ
+
